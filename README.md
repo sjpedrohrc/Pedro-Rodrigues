@@ -1,0 +1,1 @@
+Arquivos de repositório com finalidade de aprendizado
